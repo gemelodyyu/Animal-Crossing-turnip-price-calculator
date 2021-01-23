@@ -8,7 +8,7 @@ One of the long-standing features of Animal Crossing returns in New Horizons on 
 
 ## [BUYING AND SELLING TURNIPS ON SWITCH, EXPLAINED](https://www.polygon.com/animal-crossing-new-horizons-switch-acnh-guide/2020/3/20/21181835/selling-turnips-stalk-market)
 
-*By Russ Frushtick* 
+*By [Russ Frushtick](https://twitter.com/RussFrushtick)* 
 
 
 > Every Sunday morning, a wandering vendor named **Daisy Mae** will appear around your town square. Daisy Mae will sell you Turnips, but the price is *variable*. One week she may be selling them for 100 Bells, but the next week she may be selling them for 150 Bells.
